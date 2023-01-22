@@ -30,6 +30,7 @@ Though I've always liked theatre, I've never been a "theater kid." Though I've a
  - Computer Science 💻 of course! "Computer science is no more about computers than astronomy is about telescopes" -Edsger Dijkstra
  - Halloween 🎃 
  - Puzzles
+ - Stagecraft
  - Etc etc
 
 
